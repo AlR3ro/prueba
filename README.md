@@ -1,2 +1,3 @@
 # prueba
-Si lees esto eres bacano.
+(Personaje de Club Penguin)
+El nombre de mi pingüino es Rodney Su color es negro carbón, lo más característico de él es su gorro de lana el cuál es un chullo precioso! Este chullo es un gorro de lana andino en tono guinda o granate, tejido con patrones geométricos tradicionales en colores cálidos como el naranja y el ocre, que destaca por sus orejeras extendidas y trenzas largas con borlas Es un extranjero que seguramente como muchos, conocerá esta isla por primera vez, cuando llega a esta... viene en un bote de esos de viaje, muy sencillo pero está bien porque es solo su punto de inicio. Es un pingüino un poco más tímido por así decirlo, no es bueno relacionándose con los demás, es a veces miedoso y cuando nadie lo ve, un poco llorón, no está acostumbrado a viajar solo pero tomó la gran decisión de hacerlo para vivir esta experiencia y quizás descubrir que quiere hacer en su vida.
